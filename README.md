@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Baalito
-- 👀 I’m interested in ... rekking nfts
+- 👀 I’m interested in ... NFTs
 - 🌱 I’m currently learning ... flashbot
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
